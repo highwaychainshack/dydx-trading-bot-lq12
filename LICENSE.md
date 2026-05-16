@@ -1,4 +1,4 @@
-# 
+# Get the ultimate dydx trading bot with dydx trading bot custom Strategy | price-impact-analysis & yield-farming. Featuring price-impact-analysis and yield-farming, it's the best
 
 
 
